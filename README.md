@@ -1,5 +1,7 @@
 # See you on skype or discord.
-My discord id is wholespace#7338
+My telegram https://t.me/wholespace
+
+
 My skype name is "live:.cid.e3f4c40b6310f26e"
 
 
