@@ -1,4 +1,4 @@
-# See you on skype or discord.
+# See you on skype or telegram.
 My telegram https://t.me/wholespace
 
 
