@@ -1,4 +1,7 @@
 # See you on skype or telegram.
+
+Please contact me for more details.
+
 My telegram https://t.me/wholespace
 
 
