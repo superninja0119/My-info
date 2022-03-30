@@ -2,10 +2,10 @@
 
 Please contact me for more details.
 
-My telegram https://t.me/wholespace
+Telegram https://t.me/wholespace
 
 
-My skype name is "live:.cid.e3f4c40b6310f26e"
+Skype ID is live:.cid.e3f4c40b6310f26e
 
 
-My email is wholespace.214@gmail.com
+Email is wholespace.214@gmail.com
