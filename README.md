@@ -1,6 +1,7 @@
 # See you on skype or telegram.
 
 Please contact me for more details.
+Let's discuss more for your project.
 
 Telegram https://t.me/wholespace
 
