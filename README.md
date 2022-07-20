@@ -1,7 +1,6 @@
 # See you on `Skype` or `Telegram` or `Slack` or `Google Chat`.
 
-Please contact me for more details.
-Let's discuss more for your project.
+### Please contact me for more details. Let's discuss more for your project.
 
 
 Skype: live:.cid.e3f4c40b6310f26e
