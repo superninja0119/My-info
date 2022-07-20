@@ -6,7 +6,13 @@ Let's discuss more for your project.
 Telegram https://t.me/wholespace
 
 
-Skype ID is live:.cid.e3f4c40b6310f26e
+Skype: live:.cid.e3f4c40b6310f26e
 
 
-Email is wholespace.214@gmail.com
+Email: wholespace.214@gmail.com
+
+
+Google Chat: wholespace.214@gmail.com
+
+
+Slack: wholespace.214@gmail.com
