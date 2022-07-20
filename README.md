@@ -9,10 +9,10 @@ Telegram https://t.me/wholespace
 Skype: live:.cid.e3f4c40b6310f26e
 
 
-Email: wholespace.214@gmail.com
-
-
 Google Chat: wholespace.214@gmail.com
 
 
 Slack: wholespace.214@gmail.com
+
+
+Email: wholespace.214@gmail.com
