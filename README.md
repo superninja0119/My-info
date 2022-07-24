@@ -17,4 +17,5 @@ Telegram https://t.me/bigboss3233
 
 Email: wstar3233@gmail.com
 
-Discord : Kei#9877
+
+Discord: Kei#9877
