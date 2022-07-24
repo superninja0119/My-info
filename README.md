@@ -3,16 +3,16 @@
 ### Please contact me for more details. Let's discuss more for your project.
 
 
-Google Chat: wholespace.214@gmail.com
+Google Chat: wstar3233@gmail.com
 
 
-Slack: wholespace.214@gmail.com
+Slack: wstar3233@gmail.com
 
 
-Skype: https://join.skype.com/invite/vqPBbLJutJx2
+Skype: https://join.skype.com/invite/vmbKblzRKMsk
 
 
-Telegram https://t.me/wholespace
+Telegram https://t.me/bigboss3233
 
 
-Email: wholespace.214@gmail.com
+Email: wstar3233@gmail.com
